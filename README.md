@@ -11,7 +11,7 @@ characters, with the punchline landing in the last few words.
 
 ## The line
 
-> I told my boss I work best under pressure, so he moved all my deadlines to yesterday.
+> I told my boss I thrive under pressure, so he moved every deadline to yesterday and called it a growth opportunity.
 
 ## How it works
 
